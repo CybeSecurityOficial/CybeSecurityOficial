@@ -1,4 +1,4 @@
-- 👋 Olá, Somos, a @CybeSecurityOficial
+- 👋 Olá, Somos, a Cyber Security
 - 📋 Team, Focada em Treinamentoos.
 - 👨‍💻 Ajudamos Iniciantes, na Área do Hacking...
 - 📝 criamos cursos e vídeo aulas Grátis.
