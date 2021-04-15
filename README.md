@@ -4,7 +4,7 @@
 
 > Olá, somos a Cyber Security, uma team focada em Treinamentos, ajudamos Iniciantes na Área do Hacking e criamos cursos e vídeo aulas Grátis.
 
-[- 🤝 Venha aprender com a gente...](https://chat.whatsapp.com/IVK8FiPLIu823Ok9Xrljnn)
+[🤝 Venha aprender com a gente...](https://chat.whatsapp.com/IVK8FiPLIu823Ok9Xrljnn)
 
 <details>
 <summary>Redes sociais (Clique para expandir)</summary><br>
